@@ -6,7 +6,7 @@ Join the Discord for support: https://discord.gg/pushfr
 
 if you get banned this is not my issue, as these are against Blooket's TOS
 
--lol-jude
+-Vladimir-yoshi
 
 # HOW TO USE:
 
